@@ -16,7 +16,7 @@ Whether you're securing a residential apartment, a commercial building, or an in
 <li><b>Offices and Commercial Buildings: </b>Smart connectivity and networked systems ensure complete coverage and remote monitoring.</li><br>
 <li><b>Industrial Sites: </b>Rugged and durable, with enhanced resistance to dust, temperature, and humidity variations.</li><br>
 <h3>Commitment to Quality and Safety</h3>
-At MANXPOWER, safety is not just a product feature—it is a core value. Each smoke detector undergoes rigorous testing and quality checks before it reaches the customer. Compliance with national and international safety standards ensures that every unit provides dependable fire detection when it matters most.<br>
+At MANXPOWER, safety is not just a product feature—it is a core value. Each <a href="https://manximpex.com/product/standalone-smoke-detector/" title="smoke dtector" alt"smoke detector" <a>smoke detector</a> undergoes rigorous testing and quality checks before it reaches the customer. Compliance with national and international safety standards ensures that every unit provides dependable fire detection when it matters most.<br>
 <H3>Final Thoughts</H3>
 Fire safety starts with awareness and the right equipment. MANXPOWER Smoke Detectors are more than just gadgets—they are life-saving tools designed with precision and responsibility. By choosing MANXPOWER, you're not just installing a device; you're investing in peace of mind, protection, and a safer environment for all.<br>
 <h4>Get in touch with us:</h4>
